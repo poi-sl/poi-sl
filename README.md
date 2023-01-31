@@ -2,7 +2,7 @@
 - 👀 
 - 🌱 I’m still learning many things.
 - 📚 KLSH -> NCKU
-- 📫 *insert discord here*
+- 📫 ~♪☆ poi ☆♪~#7699
 - 🔰 Portfolio (link remains to be added in nearby future).
 
 
