@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Samuel.
 - 👀 
-- 🌱 I’m still learning many things.
+- 🏎️ Member of NCKU Formula Racing
 - 📚 NCKU
 - 📫 Discord: `~♪☆ poi ☆♪~#7699`
 - 🔰 Portfolios (link remains to be added in nearby future).
